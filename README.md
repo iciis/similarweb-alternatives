@@ -23,6 +23,10 @@ Here’s what Similarweb can help you with:
 
 **It helps you make smarter marketing decisions** by showing you what’s working for your competitors and what you can improve on your own site.
 
+<a href="https://afftrend.com/similarweb"> 
+<img src="https://drive.google.com/uc?export=view&id=1FoP9E8ObxUoX_OFhvRvBbO3lZ2orFR34" alt="Try Now"> 
+</a>
+
 ## What you required a Good Alternative?
 
 When looking for a **good alternative to Similarweb**, you should focus on tools that offer **useful and reliable insights** about website traffic, even if they’re free or limited. A strong alternative doesn’t have to match Similarweb completely, but it should help you make smarter marketing decisions.
@@ -73,6 +77,10 @@ Choosing the right **alternative** depends on what insights matter most for your
 
 Whether you're a marketer, entrepreneur, or small business owner, using these tools effectively can give you a competitive edge and help grow your online presence. Happy analyzing!
 
+<a href="https://afftrend.com/similarweb"> 
+<img src="https://drive.google.com/uc?export=view&id=16GPccgw1mUkqXJFEgnBxrvcdlH8lrHot" alt="Check Detailed Features"> 
+</a>
+
 ## Alternatives Overview
 
 | **Tool** | **Key Features** | **Free Plan Limitations** | **Best For** |
@@ -87,6 +95,10 @@ Whether you're a marketer, entrepreneur, or small business owner, using these to
 With these **Similarweb alternatives**, you can dive into competitor analysis and **track website performance** effectively without paying for premium tools. 
 
 Each platform offers unique strengths—whether it's **SEO insights, keyword tracking, or audience demographics**—allowing you to tailor your strategy for growth. Choose the one that fits your needs and **start analyzing smarter today**.
+
+<a href="https://afftrend.com/similarweb"> 
+<img src="https://drive.google.com/uc?export=view&id=1l5pL-NmRd4ipfP11-OQX4lmD0iqkEa_z" alt="Learn More"> 
+</a>
 
 ## FAQs
 
