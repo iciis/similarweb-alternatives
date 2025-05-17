@@ -10,6 +10,10 @@ Here, we’ll walk you through the **best free Similarweb alternatives**—so yo
 
 ## What Does Similarweb Do?
 
+<a href="https://afftrend.com/similarweb">
+  <img src="https://drive.google.com/uc?export=view&id=1wL_YrD_FzFO0dIamD4qkq8XP2km25fmy"  alt="Similarweb Homepage ">
+</a>
+
 **Similarweb** is a popular online tool used by marketers, businesses, and researchers to understand how websites perform on the internet. It gives insights into **how much traffic a website gets, where that traffic comes from, and how users behave on the site**.
 
 Here’s what Similarweb can help you with:
