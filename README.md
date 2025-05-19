@@ -31,6 +31,8 @@ Here’s what Similarweb can help you with:
 <img src="https://drive.google.com/uc?export=view&id=1FoP9E8ObxUoX_OFhvRvBbO3lZ2orFR34" alt="Try Now"> 
 </a>
 
+## Features of Similarweb
+
 ## What you required a Good Alternative?
 
 When looking for a **good alternative to Similarweb**, you should focus on tools that offer **useful and reliable insights** about website traffic, even if they’re free or limited. A strong alternative doesn’t have to match Similarweb completely, but it should help you make smarter marketing decisions.
